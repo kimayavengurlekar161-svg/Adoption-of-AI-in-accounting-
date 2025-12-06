@@ -47,7 +47,11 @@ Main challenges: high cost, job insecurity, and lack of training.
 AI is revolutionizing accounting by automating tasks and improving accuracy. ⚙
 However, awareness and training must increase to ensure effective use. 🎓
 Future accountants must learn AI tools to stay relevant in the digital era. 💼
+![qwer](https://github.com/user-attachments/assets/ab9e01e8-1ec8-4e43-93ef-a87a1dbcda8a)
 
+![awerness](https://github.com/user-attachments/assets/2916abfb-3dd2-4978-8142-208eb60cad75)
+
+![asdfr](https://github.com/user-attachments/assets/ffca1164-d17d-4620-a0db-ccc386edb273)
 
 💬 Recommendations
 
